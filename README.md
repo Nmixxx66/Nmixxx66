@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Nmixxx66
+- 👀 I’m interested in kpop
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nada
+- 📫 How to reach me ...
+- 😄 Pronouns: ela dela
+- ⚡ Fun fact: nao tem
